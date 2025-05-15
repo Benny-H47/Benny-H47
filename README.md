@@ -1,0 +1,5 @@
+- 👋 I'm Bennie. [ currently working for Elephant Havens Wilflife Foundation]
+- 👀 I’m interested in outdoor activities [nature related activities]
+- 📫 How to reach me..Whatsapp: +26772772412
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...I love the wild side of the world 😄 
